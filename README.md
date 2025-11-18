@@ -78,3 +78,5 @@ Distributed under the MIT License. See LICENSE for more information.
 
 📞 Contact
 amritmaraasi163@gmail.com
+ss 
+<img width="1651" height="741" alt="Image" src="https://github.com/user-attachments/assets/e3bb2a58-6eca-45e1-b46d-a6b15403be75" />
